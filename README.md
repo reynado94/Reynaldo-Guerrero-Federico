@@ -1,5 +1,5 @@
 
-![Logo](https://mega.nz/file/wN8WHDCQ#6akGIwUSIdWv_B4xyBbprf5Q_o9lGtQr_HeM8OFRPFA)
+![Logo](https://mega.nz/file/wN8WHDCQ#6akGIwUSIdWv_B4xyBbprf5Q_o9lGtQr_HeM8OFRPFA](https://www.ualn.edu.ni/wp-content/uploads/2023/03/COMPUTACION.png)
 
 
 # Reynaldo Guerrero Federico
